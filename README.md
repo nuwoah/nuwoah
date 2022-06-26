@@ -8,5 +8,4 @@
 
 - I’m looking to collaborate on school projects
 
-- How to reach me in @gustavo.andrigo@escola.pr.gov
-br
+- How to reach me in @gustavo.andrigo@escola.pr.gov.br
